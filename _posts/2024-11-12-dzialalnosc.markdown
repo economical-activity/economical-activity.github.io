@@ -233,7 +233,7 @@ Wybieram
 
 Może w zaświatach
 Te trzy jednoosobowe działalności
-Połączy spółk”
+Połączy spółka”
 
 Żart w tabloidzie
 Na granicy smaku
