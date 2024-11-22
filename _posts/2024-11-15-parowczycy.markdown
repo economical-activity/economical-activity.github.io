@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Dlaczego parówczycy"
-date: 2024-11-15
+date: 2024-11-14
 categories: poem
 ---
 
