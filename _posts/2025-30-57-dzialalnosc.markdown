@@ -1,0 +1,39 @@
+---
+layout: post
+title: Rex
+date: 2025-8-30
+categories: poem
+---
+
+Gotujemy płuca
+To są płuca dla Rexa
+Rex jest głodny
+
+Spod wąsów
+Wystaje mu drgający podniecony język
+Skapują elementy śliny
+
+W domu unosi się
+Zapach płuc
+Słodki klejący lepki
+
+Podchodzę
+Tańczą w garnku
+Unoszą się na pianie
+
+To jest dom jaki każdy miał mam nadzieję
+Dach
+Ściany
+
+Łazienka
+Woda media
+Płuca
+Wystygły
+
+Kroję
+Kawałki muszą być równe
+Rzeczywistość
+
+Musi mieć
+Formę
+Sześcianów
