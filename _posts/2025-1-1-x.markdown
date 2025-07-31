@@ -1,11 +1,9 @@
 ---
 layout: post
 title: "Rex"
-date: 2025-8-30
+date: 2025-7-30
 categories: poem
 ---
-
-
 
 Gotujemy płuca
 To są płuca dla Rexa
