@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Rex
+title: "Rex"
 date: 2025-8-30
 categories: poem
 ---
