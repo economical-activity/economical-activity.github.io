@@ -29,6 +29,8 @@ Już rurę zagłębiają
 Ależ boli
 
 
+
+
 **Kolonoskopia chatbota**
 
 Tak, miałem
@@ -42,6 +44,8 @@ Musztardą
 Jak
 Normalnie
 Rozstawili sprzęt na pokładzie
+
+
 
 
 **Kolonoskopia klasy ludowej**
@@ -74,6 +78,8 @@ I ilość kalorii
 Z paru posiłków
 Ot parę zapisów
 Nieregularnych
+
+
 
 
 **Kolonoskopia poety**
